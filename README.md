@@ -1,4 +1,4 @@
-## Hi 👋, ! I'm Chana Shkedi
+## Hi 👋,I'm Chana Shkedi
 
 
 
